@@ -1,5 +1,7 @@
 
-解决WhatsApp收不到验证码、非官方、封禁等各种问题 | 公众号：外贸小助手，解决外贸问题
+解决WhatsApp收不到验证码、非官方、封禁等各种问题 | 
+公众号：外贸小助手，解决外贸问题
+
 联系方式：❤[appid7788](https://image.shuobu.top/file/2e30b1b6b8db1ae3dca48.png) | 公众号：[外贸小助手](https://mp.weixin.qq.com/s/OXwqwaWogqV2ts9RJWmfBA) | 网址：[ws.hao.shuobu.top](https://ws.shuobu.top/)
 
 辅助解决WhatsApp收不到验证码问题 网上的教程五花八门，但是，问题情况更是千变万化。
